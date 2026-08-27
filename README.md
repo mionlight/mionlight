@@ -2,7 +2,7 @@
   <img width="736" height="47.104" src="https://i.postimg.cc/6qzfg9ZX/tumblr-52e088d5e3afeb933fe1b022c44d753a-75161dab-1280.jpg">
 </p>
 <p align="center">
-  <a href="">TikTok</a> / <a href="">Idk</a> / <a href="">idk</a>
+  <a href="">TikTok</a> / <a href="">Rentry</a> / <a href="">Prns</a>
 </p>
 <p align="center"> 
   Mio <em>!!</em>⋆˚꩜｡ּ 
@@ -12,7 +12,7 @@
 <br/>
 <p align="center">
   <a href="https://x.com/comic_Creepy/status/1529543479885709312/photo/1">
-    <img width="736" height="400" src="https://i.postimg.cc/RZCpdDjC/Untitled1397-20260826224532.png">
+    <img width="736" height="400" src="https://i.postimg.cc/zDjn7G5H/Untitled1397-20260826224758.png">
   </a>
 </p>
 <br/>
