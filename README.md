@@ -4,7 +4,7 @@
 <p align="center">
   $$\color{green}{\text{Mio}}$$ <em>!!</em> ⋆˚꩜｡ּ 
   <br/>
-  <a href="">TikTok</a> / <a href="">Rentry</a> / <a href="">Prns</a>
+  <a href="https://www.tiktok.com/@devyatclair?lang=en">TikTok</a> / <a href="https://rentry.co/wheredutylies">Rentry</a> / <a href="https://rentry.co/wheredutylies">Prns</a>
   <br/>
   <em>He/Him</em> ⋆ $$\color{green}{\text{Viet American}}$$ ⋆ 18 <em>!</em>
 </p>
