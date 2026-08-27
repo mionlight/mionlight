@@ -29,7 +29,7 @@
 <br/>
   $$\color{green}{\text{DNI}}$$ <em>!!</em>
   <br/>
-  <em>-13</em>, Basic Criteria
+  <em>-14</em>, Basic Criteria
 </p>
 <br/>
 <p align="center">
