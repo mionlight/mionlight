@@ -8,14 +8,22 @@
   <br/>
   <em>He/Him</em> ⋆ $$\color{green}{\text{Viet American}}$$ ⋆ 18 <em>!</em>
 </p>
+<p align="center">
+  • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
+</p>
 <br/>
 <p align="center">
-  <a href="https://x.com/comic_Creepy/status/1529543479885709312/photo/1">
+  <a href="https://www.tumblr.com/eelfishez">
     <img width="736" height="400" src="https://i.postimg.cc/zDjn7G5H/Untitled1397-20260826224758.png">
   </a>
 </p>
 <br/>
-<p align="center"> blah blah blah blah</p>
+<p align="center">
+  • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
+</p>
+<p align="center">
+  blah blah blah blah
+</p>
 <br/>
 <p align="center">
   <img width="736" height="100" src="https://i.postimg.cc/VLVjCZBn/tumblr-b7c134686e89ebbf47f2b37682d9551b-9b54c47d-1280.jpg">
