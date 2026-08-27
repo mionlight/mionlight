@@ -22,7 +22,14 @@
   • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
 </p>
 <p align="center">
-  blah blah blah blah
+  $$\color{green}{\text{Interests}}$$ <em>!!</em>
+<br/>
+  Genshin, HSR, HI3, Limbus Company, Gachiakuta, Frieren, Pokemon, Fire Emblem, ZENO, <br/> K-POP, Persona, Chiikawa, DR, ALNST, PJSK, OMORI, R1999, Link Click, To Be Hero X, Creepypasta, <br/> Iruma-Kun, MLP, YTTD, Daybreak 2, Silver Palace, Saihate Station, Undertale, Deltarune, ETC...
+<br/>
+<br/>
+  $$\color{green}{\text{DNI}}$$ <em>!!</em>
+  <br/>
+  <em>-13</em>, Basic Criteria
 </p>
 <br/>
 <p align="center">
