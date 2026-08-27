@@ -2,12 +2,11 @@
   <img width="736" height="47.104" src="https://i.postimg.cc/6qzfg9ZX/tumblr-52e088d5e3afeb933fe1b022c44d753a-75161dab-1280.jpg">
 </p>
 <p align="center">
-  <a href="">TikTok</a> / <a href="">Rentry</a> / <a href="">Prns</a>
-</p>
-<p align="center"> 
-  Mio <em>!!</em>⋆˚꩜｡ּ 
+  $$\color{green}{\text{Mio}}$$ <em>!!</em> ⋆˚꩜｡ּ 
   <br/>
-  <em>He/Him</em> ⋆ Viet American ⋆ 18 <em>!</em>
+  <a href="">TikTok</a> / <a href="">Rentry</a> / <a href="">Prns</a>
+  <br/>
+  <em>He/Him</em> ⋆ $$\color{green}{\text{Viet American}}$$ ⋆ 18 <em>!</em>
 </p>
 <br/>
 <p align="center">
